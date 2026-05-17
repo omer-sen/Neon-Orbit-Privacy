@@ -4,7 +4,7 @@ Thanks for playing Neon Orbit.
 
 For support, questions, purchase issues, bug reports, or feedback, contact:
 
-ofsen03@gmail.com
+ofsen2117@gmail.com
 
 When contacting support, please include:
 
